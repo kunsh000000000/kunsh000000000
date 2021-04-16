@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @kunsh000000000
+- 👀 I’m interested in nothing...just an introverted kid spending whole of his life in a room.
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on please do me a favour and don't reach out
+- 📫 How to reach me-DON'T.
